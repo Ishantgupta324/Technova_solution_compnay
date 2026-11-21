@@ -1,1 +1,1 @@
-technova solution!
+technova solution
